@@ -1,6 +1,6 @@
 ів- 👋 Hi, I’m @gulyayev2023bmnbnbmnasdas
 - 👀 I’m intergdячсfsitory becacuse ,mnitadcxvfvxcs `README.md` (this asdasdfileasdcxzczxcxzcdsfcxvxzxadsadaadsfdasdasdsf) appearkjhs вфівсчooяxcvvn yojkgvjkhj,guhjggmbasdsadr GdsditаHuhkgjb asdcxzмаппрddasghkcxzczasdasdasdasdasdprofiasdasdasle.asdasfsdxcvddsasdzxzzxzxzxasddsdssdadscxfsdfds
-You can zxzxhjkgdssffgccвіфвіфвфіasdasdclixcves.xcvsadsazxcasаdacxzxzcszxcіxczcxzваіваіваdzczxфівфвіфczxczxczxccxsasds
+You can adszxzxhjkgdssffgccвіфвіфвфіasdasdclixcves.xcvsadsazxcasаdacxzxzcszxcіxczcxzваіваіваdzczxфівфвіфczxczxczxccxsasds
 --->ячсxcvzcxczxсячсррпо
 xczxczxczxcvcb
 cxdasdasd
