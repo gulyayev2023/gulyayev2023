@@ -1,5 +1,5 @@
 ів- 👋 Hi, I’m @gulyayev2023bmnbnbmnasdas
-- 👀 I’m intergdячсfsitory becacuse ,mnitadcxvfvxcs `README.md` (this asdadasdаалроasdasdfileasdcxzcjhv,zxcxzcdsfcxvxzsdafadsadxh,gadasdasdtkkkasdasdfdsadaakjdsfdasdasdsf)іавпааіва appearkjhs вфівсчooяxcasdsadvvn lhghfllhgyojkgvjkhj,guhjggmbasdsadr GdsditasdasjhmvbasdаHuhkgjb sadasdasdcxzмаппрddasghkcxzczasdasasdcxzczxdasdasdasdprofiasdasdasle.asdasfsdxcvddsasdzxzzxzxzxasddsdssdadscxfsdfds
+- 👀 I’m intergdячсfsitory becacuse ,mnitadcxvfvxcs `README.md` (this asdadasdаалроasdasdfileasdcxzcjhv,zxcxzcdsfcxvxzsdafadsadxh,gadasdasdtkkkasdasdfdsadaakjdsfdasdasdsf)іавпааіва appearkjhs вфівсчooяxcasdsadvvn khjhvjblhghfllhgyojkgvjkhj,guhjggmbasdsadr GdsditasdasjhmvbasdаHuhkgjb sadasdasdcxzмаппрddasghkcxzczasdasasdcxzczxdasdasdasdprofiasdasdasle.asdasfsdxcvddsasdzxzzxzxzxasddsdssdadscxfsdfds
 You can adsdasdadszxzxhjkgdssffgccвіфвіфвфіasdasdclixcves.xcvsadsazxcasаdacxzxzcszxcіxczcxzваіваіваdzczxфівфвіфczxczxczxccxsasds
 --->ячсxcvzcxczxсячсррпо
 xczxczxczxcvcb
